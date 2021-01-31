@@ -1,4 +1,4 @@
-### Looking for gains 🐉
+### #DeFi for financial freedom ⚡
 
 reachme @ chfus@protonmail.com
 
